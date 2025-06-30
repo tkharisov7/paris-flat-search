@@ -1,15 +1,14 @@
 # paris flat share experience
 
-## my message to land lords 
+## mon message aux propriétaires
 
 Bonjour,
 
-L’appartement m’intéresse beaucoup, est-il toujours disponible ? Pourriez-vous me donner un peu plus de détails, notamment si le logement est éligible aux APL et les modalités de signature du contrat, ainsi que la date précise à laquelle la chambre sera libre?
+Je suis intéressé par l’appartement. Est-ce qu’il est toujours disponible ? Pouvez-vous me donner plus d’informations ? Est-ce que le logement accepte les APL ? Comment signer le contrat ? Quand la chambre sera-t-elle libre ?
 
-Je me permets de me présenter rapidement: je m’appelle Timur (homme 23 ans), je suis étudiant en Master 2 de mathématiques à l’Universite Paris Saclay, et je commencerai un doctorat CIFRE à la rentrée. Je cherche un logement à partir de juillet, pour les trois prochaines années de ma thèse. Je recherche un chambre dans un quartier calme et agréable, bien situé sur le RER B. Je parle advanced anglais, beginner français et native Russe.
+Je me présente : je m’appelle Timur. J’ai 23 ans. Je suis un homme. Je suis étudiant en Master 2 de mathématiques à l’Université Paris Saclay. Je vais commencer un doctorat CIFRE en septembre. Je cherche un logement à partir de juillet, pour trois ans. Je veux une chambre dans un quartier calme, près du RER B. Je parle anglais (avancé), français (débutant) et russe (langue maternelle).
 
-Merci d’avance pour votre retour et pour les informations que vous pourriez me transmettre.
-je serais également très intéressés par une visite, si cela est possible.
+Merci beaucoup pour votre réponse et les informations. Je voudrais aussi visiter l’appartement si c’est possible.
 
-Bonne journée,
+Bonne journée,  
 Timur
